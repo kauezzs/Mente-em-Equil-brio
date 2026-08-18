@@ -1,1 +1,1 @@
-# Mente-em-Equil-brio
+# Mente-em-Equilibrio
